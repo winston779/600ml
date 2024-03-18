@@ -1,6 +1,6 @@
 # 600ML矿泉水机场官网地址
 
-最新官网地址：[600mlyun.top](https://b.600mlwater.top/#/register?code=EkJNq48s)
+最新官网地址：[600mlyun.top](https://c.600cloud.top/#/register?code=EkJNq48s)
 
 ## 600ML矿泉水机场介绍
 
